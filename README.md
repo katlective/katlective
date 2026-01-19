@@ -9,3 +9,5 @@ aren't they beautiful
 ![oh my god im in love with her](https://i.postimg.cc/zBp50zfp/thpluto.png)
 ![fucking chud loser](https://i.postimg.cc/zBGj1SCY/viktor.png)
 1/16/26
+![actual bug](https://i.postimg.cc/fRspBbbC/AEDDpluto.png)
+1/19/26
