@@ -14,5 +14,6 @@ aren't they beautiful
 ![time rip or something](https://i.postimg.cc/bNm96zy9/tralice.png)
 1/19/26
 ![awww so cute](https://i.postimg.cc/KY1pTkDR/c.png)
+![awww so cutex2](https://i.postimg.cc/YSKK01TV/thumbc.png)
 𝘤𝘩𝘢𝘳𝘢𝘤𝘵𝘦𝘳 𝘣𝘦𝘭𝘰𝘯𝘨𝘴 𝘵𝘰 [@𝘕𝘰𝘯𝘉𝘪𝘯𝘢𝘳𝘺𝘏𝘰𝘯𝘨𝘭𝘶](https://github.com/NonBinaryHonglu)
 1/20/26
