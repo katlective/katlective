@@ -33,5 +33,6 @@ aren't they beautiful
 ![umasinner](https://i.postimg.cc/DZ5zbCmc/Obey-Your-Master.png)
 2/1/26
 
-![thumblice](https://i.postimg.cc/YqFJvV7h/thumbliceshorthair.png)
+![thumblice](https://i.postimg.cc/xdBGh9xc/thumblicelonghair.png)
+![lcbalice](https://i.postimg.cc/d0gRpJH0/Alice.png)
 2/6/26
