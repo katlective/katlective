@@ -36,4 +36,6 @@ aren't they beautiful
 ![thumblice](https://i.postimg.cc/xdBGh9xc/thumblicelonghair.png)
 ![lcbalice](https://i.postimg.cc/d0gRpJH0/Alice.png)
 ![dvpluto](https://i.postimg.cc/FR4tmX1d/dvpluto.png)
+![elizebeth](https://i.postimg.cc/15qNCT2n/elize.png)
+![weibeth](https://i.postimg.cc/SNMzT53M/weibeth.png)
 2/6/26
